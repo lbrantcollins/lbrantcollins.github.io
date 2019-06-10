@@ -1,2 +1,2 @@
 # lbrantcollins.github.io
-Susan Wilson pages
+Susan H Wilson
